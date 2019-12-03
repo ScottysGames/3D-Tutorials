@@ -1,2 +1,2 @@
 # 3D-Tutorials
-Für den YOuTube Kanal ScottysGames... ;)
+Für den YouTube Kanal ScottysGames... ;)
